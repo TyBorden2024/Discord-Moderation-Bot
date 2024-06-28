@@ -14,6 +14,6 @@ https://youtu.be/
 
 # Useful Link
 [Donate? Click here](Comingsoon) <br>
-[SUBSCRIBE](https://youtube.com/c/) <br>
+[SUBSCRIBE](https://www.youtube.com/@TyBorden_2024) <br>
 [Discord Server](https://discord.gg/ywR84fjReC) <br>
 [My APIs](Comingsoon)
